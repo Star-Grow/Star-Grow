@@ -1,4 +1,4 @@
-## Star Grow Avaliações: Por que a corretora sempre paga?
+## Star Grow Opiniões: Por que a corretora sempre paga?
 
 ![Star Grow Avaliações   ](https://github.com/user-attachments/assets/ca8b34ef-43be-424d-918c-700e69b926fd)
 
